@@ -1,1 +1,1 @@
-# Welcome to PSOMSAS (awaiting updates)
+# Welcome to the PSOMSAS
